@@ -6,3 +6,4 @@ Meu nome é Gabriel Silva
 - Utilizo esse espaço para minha organização e
 compartilhamento dos meus projetos desenvolvidos
 
+![image](https://media1.tenor.com/m/xCkCA1qN2AMAAAAC/kiss-trophy-neymar-jr.gif)
